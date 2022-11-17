@@ -1,3 +1,3 @@
 # Welcome to Deotarrobago.github.iomain
 Kape is layp
-https://deih43ym53wif.cloudfront.net/kuta-bali-beach-indonesia-shutterstock_297303287.jpg_9b516347e5.jpg
+![image](https://user-images.githubusercontent.com/118231234/202322590-d3eaf734-6aab-40b3-9491-696766ad80ff.png)
