@@ -4,7 +4,5 @@
 ### Sunset
 ![alt text](https://media.istockphoto.com/id/1172427455/photo/beautiful-sunset-over-the-tropical-sea.jpg?s=612x612&w=0&k=20&c=i3R3cbE94hdu6PRWT7cQBStY_wknVzl2pFCjQppzTBg=)
 Sunset wil heppen when the sun is low on the horizon, and the rays of sunlight pass through more air in the atmosphere than they do when the sun is higher in the sky. When sunlight passes through more atmosphere, there are more particles to scatter the light.
-Phsycological Facts ---Sunset symbolizes the end of something – of the light, a stage or condition in one's life, or the end of life itself. The forms, colors, and textures of the world blossom one last time in the setting sun before they fade into oblivion.
----
-### Music
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/7j0cqSyR4DZg0IwcNxWHVU?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+Phsycological Facts ---Sunset symbolizes the end of something – of the light, a stage or condition in one's life, or the end of life itself. The forms, colors, and textures of the world blossom one last time in the setting sun before they fade into oblivion.And as its said, 
+ 
