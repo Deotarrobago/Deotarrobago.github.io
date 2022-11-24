@@ -1,4 +1,3 @@
-# Welcome to Deotarrobago.github.iomain
 **One of the most Beautiful things That the world has**
 ---
 ### Sunset
@@ -7,5 +6,3 @@ Sunset wil heppen when the sun is low on the horizon, and the rays of sunlight p
 ---
 ### Phsycological Facts ---Sunset symbolizes the end of something – of the light, a stage or condition in one's life, or the end of life itself. The forms, colors, and textures of the world blossom one last time in the setting sun before they fade into oblivion.And as its said,
 ---
-
-
